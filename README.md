@@ -26,8 +26,6 @@ Mange lever i den fejlagtige tro, at de kan se, hvem der læser deres journal p�
 "Sundhed.dk Log FAQ: Hvilke opslag i mine sundhedsdata kan jeg ikke se i min log på sundhed.dk?
 Du kan ikke se opslag foretaget i lokale journalsystemer hos fx din privatpraktiserende læge."
 
-Der er en verden til forskel på at læse egne noter i en lokal journal og at logge ind i statens centrale registre. Når en person som Henriette tilgår jeres FMK (Fælles Medicinkort) uden en aktuel behandlingsrelation, er det ikke "journalføring" – det er en ulovlig indtrængning i et nationalt register jf. Sundhedslovens § 157 og Straffelovens § 263.
-
 2. Den kyniske diagnose-fælde:
 
 Når Henriette ikke kan finde belastende materiale i journalen eller Det Fælles Medicinkort – fordi alle tidligere mistanker er entydigt afkræftet af speciallæger – tyr hun til en bevidst fælde: Hun opfinder sin egen "science-fiction" betegnelse: "skizofren personlighed".
@@ -51,9 +49,6 @@ Denne vidtgående konklusion er draget efter en konsultation på under 12 minutt
 Bemærkning vedrørende juridisk integritet:
 
 Til ledelsen i MedAssist ApS og de navngivne enkeltpersoner i dette opslag: Enhver form for forsøg på at få fjernet dette opslag under påskud af "injurier" eller "ærekrænkelse" vil være omsonst. Jeg er i besiddelse af det fulde sandhedsbevis (jf. Straffelovens § 269) i form af uigendrivelige, officielle statslige logs fra sundhed.dk samt underskrevne erklæringer fra statslige myndigheder.
-
-Det faktum, at dette opslag forbliver offentligt tilgængeligt på tværs af platforme, er i sig selv beviset på, at de dokumenterede fakta – herunder de ulovlige dataopslag (§ 157) og den fiktive diagnosticering – er sande og juridisk ubestridelige. Hvis disse oplysninger var faktuelt forkerte, ville de for længst være blevet udfordret ved domstolene.
-
 
 ## EVIDENS / BEVISER (Exhibits)
 
