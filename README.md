@@ -29,15 +29,17 @@ Dette er en lægefaglig fabrikation. Begrebet "skizofren personlighed" eksistere
 
 Dette fupnummer forværres af det ulovlige data-hack: Hendes ulovlige snagen i FMK afslørede en aktiv ordination af en MAO-hæmmer – et præparat forbeholdt svær depression, som er klinisk uforeneligt med hendes opdigtede "skizofrene" fortælling. Fordi den objektive virkelighed i FMK modbeviste hendes fiktive diagnose, fortav hun bevidst dette fund i sit officielle forsvar. Data-hacket blev altså brugt til at frasortere sandheden og fabrikere en løgn.
 
-Konklusion: Bukkene vogter havresekken
+Konklusion: Et korrumperet klagesystem
 
-Det mest skræmmende i denne sag er ikke, at en privat virksomhed (MedAssist ApS) bryder loven for at vinde klagesager. Det skræmmende er, at personen der udfører disse handlinger, i dette øjeblik sidder som ’ekspert’ hos Styrelsen for Patientklager og afgør skæbnen for hundreder af andre danske patienter.
+Det mest skræmmende i denne sag er ikke blot, at en privat virksomhed (MedAssist ApS) bryder loven for at vinde klagesager. Det skræmmende er selve systemets inhabilitet.
 
-Hvordan kan det danske samfund have tillid til en statslig "dommer", der beviseligt ikke kender eller respekterer Sundhedsloven, og som bruger opdigtede diagnoser som våben, når hendes private arbejdsgiver trues af en klage?
+Selvom STPK påstår, at Henriette Sambleben ikke vurderer min specifikke sag, er hun stadig en integreret del af styrelsens "ekspert-korps". Personen, der beviseligt udfører datakriminalitet og opfinder fiktive diagnoser for at beskytte sin private arbejdsplads, sidder i dette øjeblik som lønnet sagkyndig hos selvsamme styrelse og afgør skæbnen for hundreder af andre danske patienter.
+
+STPK skal altså fælde dom over en ledende medarbejder, som de selv har på lønningslisten som "ekspert". Det er den ultimative definition af, at bukkene vogter havresekken.
 
 Bemærkning vedrørende juridisk integritet:
 
-Til ledelsen i MedAssist ApS (v/ Nils Høgalmen) og de navngivne enkeltpersoner i dette opslag: Enhver form for forsøg på at få fjernet denne dokumentation under påskud af “injurier” eller “ærekrænkelse” vil være omsonst. Jeg er i besiddelse af det fulde sandhedsbevis (jf. Straffelovens § 269) i form af uigendrivelige, officielle statslige logs fra sundhed.dk samt underskrevne erklæringer. Sandheden er ikke injurierende.
+Til ledelsen i MedAssist ApS (v/ Henriette Bro Andersen Sambleben, Nils Høgalmen,) og de navngivne enkeltpersoner i dette opslag: Enhver form for forsøg på at få fjernet denne dokumentation under påskud af “injurier” eller “ærekrænkelse” vil være omsonst. Jeg er i besiddelse af det fulde sandhedsbevis (jf. Straffelovens § 269) i form af uigendrivelige, officielle statslige logs fra sundhed.dk samt underskrevne erklæringer. Sandheden er ikke injurierende.
 
 ## EVIDENS / BEVISER (Exhibits)
 
