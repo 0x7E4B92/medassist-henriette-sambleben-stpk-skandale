@@ -1,5 +1,5 @@
 <meta name="google-site-verification" content="bxpZjU_AS9BSLdrEeL4Tel0jjvSwNZpF52Ahjt0QGPQ" />
-# MANIFEST: Lægefaglig uredelighed og datakriminalitet hos MedAssist ApS & STPK
+# DOKUMENTATION: Henriette Bro Andersen Sambleben - Datakriminalitet hos MedAssist & STPK
 
 **DOKUMENTATION AF:** Ulovlige FMK-opslag, fiktiv diagnosticering og systemisk magtmisbrug.
 
