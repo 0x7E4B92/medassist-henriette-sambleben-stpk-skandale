@@ -55,7 +55,7 @@ Til ledelsen i MedAssist ApS (v/ Henriette Bro Andersen Sambleben, Nils Høgalme
 4. **Exhibit D: Status som STPK-sagskyndig**  
 ![Exhibit D](stpk-sagkyndig-konsulent-henriette-sambleben-9-aar-erfaring.png)
 
-5. **Exhibit E: Medassist til for klinikker - ikke patienter
+5. **Exhibit E: Medassist til for klinikker - ikke patienter**
 ![Exhibit E](medassist-aps-vi-er-til-for-klinikkerne-henriette-sambleben-stpk-inhabilitet.png)
 
 MedAssists egen hjemmeside efterlader ingen tvivl om loyaliteten: 'Vi er til for klinikkerne'. Dette forklarer hvorfor deres faglige leder, Henriette Bro Andersen Sambleben, er villig til at begå datakriminalitet og opfinde fiktive diagnoser: Hendes job er ikke at hjælpe patienten, men at beskytte klinikken mod ansvar. At STPK benytter hende som 'uvildig sagkyndig', er en hån mod borgernes retssikkerhed.
