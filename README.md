@@ -53,7 +53,7 @@ Til ledelsen i MedAssist ApS (v/ Henriette Bro Andersen Sambleben, Nils Høgalme
 ![Exhibit C](henriette-sambleben-dobbeltrolle-medassist-stpk-sagkyndig-bevis.png)
 
 4. **Exhibit D: Status som STPK-sagskyndig**  
-![Exhibit D](stpk-sagkyndig-konsulent-henriette-sambleben-9-aar-erfaring.png)
+![Exhibit D](stpk-sagkyndig-konsulent-henriette-sambleben-9-aar-erfaring-1.png)
 
 5. **Exhibit E: Medassist til for klinikker - ikke patienter**
 ![Exhibit E](medassist-aps-vi-er-til-for-klinikkerne-henriette-sambleben-stpk-inhabilitet.png)
