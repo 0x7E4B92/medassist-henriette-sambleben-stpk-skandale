@@ -65,3 +65,7 @@ Da MedAssist ApS opererer som en uærlig modpart, er her et permanent, uafhængi
 https://pikwy.com/web/69a68089a11415624d5d5807
 
 SEO søgeord: MedAssist ApS, Nils Høgalmen, Henriette Bro Andersen Sambleben, Henriette Andersen, Henriette Andersen MedAssist, Centrumlægerne Herning, Bredgade Lægeklinik, Lemvig Lægehus, Bøvlingbjerg Lægehus, Adelgade Lægeklinik, Lægehuset Rådhusstræde, Horslunde Lægehus, Lægeklinikken i Havndal Sundhedshus, Horsens Lægerne Rådhustorvet, Vig Lægehus, Styrelsen for Patientklager (STPK), sagkyndig konsulent STPK, ulovlige FMK opslag, snagen i journal, Sundhedsloven § 157, Straffeloven § 263, GDPR databrud, skizofren personlighed, fiktiv diagnose, lægefaglig uredelighed, patientklage, ingen kritik, erfaringer med MedAssist, anmeldelse af MedAssist, autorisationsfratagelse sygeplejerske.
+
+https://sites.google.com/view/henriette-sambleben-medassist/start
+
+https://henriette-sambleben-medassist.blogspot.com/2026/03/dokumentation-statens-sagkyndige-stpk.html
