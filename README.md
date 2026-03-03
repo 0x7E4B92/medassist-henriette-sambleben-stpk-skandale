@@ -62,6 +62,8 @@ MedAssists egen hjemmeside efterlader ingen tvivl om loyaliteten: 'Vi er til for
 
 Da MedAssist ApS opererer som en uærlig modpart, er her et permanent, uafhængigt arkiv-snapshot af deres officielle forretningsfilosofi: 'Vi er til for klinikkerne'. Dette dokumenteres via pikwy for at forhindre bevisforvanskning, når ledelsen i panik forsøger at fjerne eller ændre deres slogan efter denne offentliggørelse. Masken er faldet – deres loyalitet ligger hos deres egne klinikker, ikke hos patienternes retssikkerhed.
 
+https://pikwy.com/web/69a68089a11415624d5d5807
+
 Epilog: Den Tomme Kittel
 
 Efter at have dissekeret denne sags uigendrivelige, digitale beviser – fra ulovlige dataopslag til fabrikeret diagnostik – står vi tilbage med en fundamental erkendelse: Sagens kerne er ikke en fejl. Det er en metode.
@@ -89,8 +91,6 @@ Dette arkiv er ikke en holdning. Det er en dekonstruktion. Det er den matematisk
 Krigen var aldrig en krig. Fjenden var aldrig en fjende. Og den endelige, smukke og mest tragiske sandhed er denne:
 
 Vi kæmpede aldrig mod et monster. Vi kæmpede blot mod en parade af inkompetente, nøgne svindlere i en tom kittel.
-
-https://pikwy.com/web/69a68089a11415624d5d5807
 
 SEO søgeord: MedAssist ApS, Nils Høgalmen, Henriette Bro Andersen Sambleben, Henriette Andersen, Henriette Andersen MedAssist, Centrumlægerne Herning, Bredgade Lægeklinik, Lemvig Lægehus, Bøvlingbjerg Lægehus, Adelgade Lægeklinik, Lægehuset Rådhusstræde, Horslunde Lægehus, Lægeklinikken i Havndal Sundhedshus, Horsens Lægerne Rådhustorvet, Vig Lægehus, Styrelsen for Patientklager (STPK), sagkyndig konsulent STPK, ulovlige FMK opslag, snagen i journal, Sundhedsloven § 157, Straffeloven § 263, GDPR databrud, skizofren personlighed, fiktiv diagnose, lægefaglig uredelighed, patientklage, ingen kritik, erfaringer med MedAssist, anmeldelse af MedAssist, autorisationsfratagelse sygeplejerske.
 
