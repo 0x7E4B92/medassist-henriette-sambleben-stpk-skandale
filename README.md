@@ -69,3 +69,5 @@ SEO søgeord: MedAssist ApS, Nils Høgalmen, Henriette Bro Andersen Sambleben, H
 https://sites.google.com/view/henriette-sambleben-medassist/start
 
 https://henriette-sambleben-medassist.blogspot.com/2026/03/dokumentation-statens-sagkyndige-stpk.html
+
+https://docs.google.com/document/d/e/2PACX-1vR0RJ266DTe8HRUumqOdbg6SVKurDURDY1FlYPI9pFqbgGhPteY-lbESfMqamhdNCHQfYyZOmweY1bP/pub
