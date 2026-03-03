@@ -70,4 +70,5 @@ https://sites.google.com/view/henriette-sambleben-medassist/start
 
 https://henriette-sambleben-medassist.blogspot.com/2026/03/dokumentation-statens-sagkyndige-stpk.html
 
-https://docs.google.com/document/d/e/2PACX-1vR0RJ266DTe8HRUumqOdbg6SVKurDURDY1FlYPI9pFqbgGhPteY-lbESfMqamhdNCHQfYyZOmweY1bP/pub
+https://docs.google.com/document/d/e/2PACX-1vQYuqfUGDhxigM_7sQ4e9Gx4dvb3F0c9FbFkkILOmfdFynM6nWTVz169ls6e5ziLRfJZOP7vfpIthsc/pub
+
