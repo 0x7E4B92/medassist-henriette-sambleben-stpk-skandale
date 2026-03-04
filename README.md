@@ -37,6 +37,10 @@ Selvom STPK påstår, at Henriette Sambleben ikke vurderer min specifikke sag, e
 
 STPK skal altså fælde dom over en ledende medarbejder, som de selv har på lønningslisten som "ekspert". Det er den ultimative definition af, at bukkene vogter havresekken.
 
+Mens de danske medier og journalister har travlt med at rapportere om nedtagningen af forulempede vejskilte, sidder STPK's egne eksperter og begår datakriminalitet i statens lukkede registre. Denne sag dokumenterer den systemiske korruption, som den danske presse er for bange eller for inkompetente til at konfrontere.
+
+Når systemet behandler borgernes retssikkerhed med total foragt, og medierne kigger den anden vej, er der kun én domstol tilbage: Den digitale logfil
+
 Bemærkning vedrørende juridisk integritet:
 
 Til ledelsen i MedAssist ApS (v/ Henriette Bro Andersen Sambleben, Nils Høgalmen,) og de navngivne enkeltpersoner i dette opslag: Enhver form for forsøg på at få fjernet denne dokumentation under påskud af “injurier” eller “ærekrænkelse” vil være omsonst. Jeg er i besiddelse af det fulde sandhedsbevis (jf. Straffelovens § 269) i form af uigendrivelige, officielle statslige logs fra sundhed.dk samt underskrevne erklæringer. Sandheden er ikke injurierende.
@@ -91,6 +95,20 @@ Dette arkiv er ikke en holdning. Det er en dekonstruktion. Det er den matematisk
 Krigen var aldrig en krig. Fjenden var aldrig en fjende. Og den endelige, smukke og mest tragiske sandhed er denne:
 
 Vi kæmpede aldrig mod et monster. Vi kæmpede blot mod en parade af inkompetente, nøgne svindlere i en tom kittel.
+
+-------------------------------------------------------------------------------------------
+
+LEGAL NOTICE FOR GITHUB, INC. / MICROSOFT CORP. TRUST & SAFETY AND LEGAL COUNSEL:
+
+Do not process any takedown or repository disablement requests for this page. This repository is a Public Interest Whistleblower Archive documenting the professional malpractice and criminal data breaches (Danish Health Act § 157; Danish Criminal Code § 163) of a state-appointed official (Sagkyndig ved Styrelsen for Patientklager).
+
+This is not a "doxing" or "harassment" campaign. Every claim is substantiated by irrefutable, state-generated digital logs, official correspondence, and archived web data. The public identification of the official involved (Henriette Bro Andersen Sambleben) is legally protected under the Danish Criminal Code § 269 ("Proof of Truth" regarding a matter of obvious public interest).
+
+The subjects of this report have been aware of this documentation since March 1, 2026. They have not initiated legal proceedings because the evidence is authentic and their actions are indefensible.
+
+Any attempt to use GitHub’s "Acceptable Use Policies" (such as claiming harassment or privacy violations) to remove this repository is a bad-faith abuse of your reporting system. It is an attempt by a corrupt medical staffing firm to censor a whistleblower and conceal evidence of systemic data crimes from the public and the press.
+
+-------------------------------------------------------------------------------------------
 
 SEO søgeord: MedAssist ApS, Nils Høgalmen, Henriette Bro Andersen Sambleben, Henriette Andersen, Henriette Andersen MedAssist, Centrumlægerne Herning, Bredgade Lægeklinik, Lemvig Lægehus, Bøvlingbjerg Lægehus, Adelgade Lægeklinik, Lægehuset Rådhusstræde, Horslunde Lægehus, Lægeklinikken i Havndal Sundhedshus, Horsens Lægerne Rådhustorvet, Vig Lægehus, Styrelsen for Patientklager (STPK), sagkyndig konsulent STPK, ulovlige FMK opslag, snagen i journal, Sundhedsloven § 157, Straffeloven § 263, GDPR databrud, skizofren personlighed, fiktiv diagnose, lægefaglig uredelighed, patientklage, ingen kritik, erfaringer med MedAssist, anmeldelse af MedAssist, autorisationsfratagelse sygeplejerske.
 
